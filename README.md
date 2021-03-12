@@ -6,7 +6,7 @@
 
 
 To have some fun, 😄
-- You can open his twitter account, 😎
+- You can open your twitter account, 😎
 - You can look at your fortune, 🔮
 - You can ask "Do you love me?" 😍
 
